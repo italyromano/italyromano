@@ -6,15 +6,13 @@ $\color{#5751c1}\textsf{・・・・・・・・・・・・・・・・・・�
 
 ⠀
 
-$\color{#5751c1}\textsf{✦ |}$ 
-
 $\color{#b4a8dd}\textsf{𓏵‧₊˚ ┊ ⤷ ゛}$***BASICS***  $\color{#b4a8dd}\textsf{⋆｡˚}$ 
 
 $\color{#5751c1}\textsf{☾ |}$ You may call me Eevee or the name of the character I'm using idc. I'm a transgender man and use he/him pronouns.
 
 $\color{#9aade4}\textsf{☾ |}$ I'm 20 y/o DNI if you are uncomfortable with that. I won't interact with you first if I know you're 15 or less.
 
-$\color{#5751c1}\textsf{☾ |}$ My official lenguage is spanish but I also can speak english.
+$\color{#5751c1}\textsf{☾ |}$ My native lenguage is spanish but I also can speak english.
 
 $\color{#9aade4}\textsf{☾ |}$ I'll always be c+h even with friends, but I won't start any conversations. Sorry, I'm awkward, I might sound cold but I'm nice, promise...
 
@@ -30,7 +28,7 @@ $\color{#9aade4}\textsf{𝄢 |}$ I'm a biiig Romano kinnie and I'm too old to ca
 
 $\color{#5751c1}\textsf{𝄢 |}$ **current interests**: Undertale, Deltarune, Hetalia, Omori, Hollow Knight, DDLC, Splatoon, Chiikawa, typology...
 
-$\color{#9aade4}\textsf{𝄢 |}$ **My typology**: sp/sx 4w5 469 ISFP EFVL [R]\L\uAi |  full if anybody cares: https://docs.google.com/document/d/1t0_Ba2p5lyqbAa65RVzKyDdjW-bB5X5eD5JrVPWUYEI/edit?usp=sharing
+$\color{#9aade4}\textsf{𝄢 |}$ **My typology**: sp/sx 4w5 469 ISFP EFVL [R]\L\uAi |  $\color{#b2b9cb}\textsf{full if anybody cares:}$  https://docs.google.com/document/d/1t0_Ba2p5lyqbAa65RVzKyDdjW-bB5X5eD5JrVPWUYEI/edit?usp=sharing
 
 $\color{#5751c1}\textsf{・・・・・・・・・・・・・・・・・・・・・・・・・}$ 
 
@@ -44,6 +42,8 @@ $\color{#5751c1}\textsf{✦ |}$ Please don't be weird or mean to me, it's alread
 
 $\color{#5751c1}\textsf{・・・・・・・・・・・・・・・・・・・・・・・・・}$ 
 
-<img width="498" height="281" alt="romano-hetalia" src="https://github.com/user-attachments/assets/9f6975a1-f587-4b21-98a2-aac3d711efbd" />
+> Thanks for reading, doing this was painful.
+
+<img width="367" height="265" alt="667_sin_titulo_20261014133206" src="https://github.com/user-attachments/assets/3ecb08f3-2feb-497d-b30c-aaaa5166a4f2" />
 
 ---
