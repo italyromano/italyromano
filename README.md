@@ -40,4 +40,6 @@ Hello, idk how to make a good repository so I'll just put whatever. This is just
 
 ✦ | Please don't be weird or mean to me, it's already hard enough for me to communicate- at my big old age, yes.
 
-⋆ ꩜ ⋆｡°✩  𓇼 𓆛 𓇼 ⋆｡°✩ ꩜ ⋆ 
+・・・・・・・・・・・・・・・・・・・・・・・・・
+
+<img width="498" height="281" alt="romano-hetalia" src="https://github.com/user-attachments/assets/9f6975a1-f587-4b21-98a2-aac3d711efbd" />
