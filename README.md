@@ -1,4 +1,4 @@
-Hello, idk how to make a good repository so I'll just put whatever. This is just for pony town. 𑄝੭
+Hello, idk how to make a good repository so I'll just put whatever. This is just for pony town. 𓏲(=`‸´=)
 
 ・・・・・・・・・・・・・・・・・・・・・・・・・
 
@@ -34,10 +34,10 @@ Hello, idk how to make a good repository so I'll just put whatever. This is just
 
 𓏵‧₊˚ ┊ ⤷ ゛***BOUNDARIES*** ⋆｡˚
 
-⚓︎ | Only interact if you are in any of my fandoms... Especially if you like Undertale and Deltarune
+✦ | Only interact if you are in any of my fandoms... Especially if you like Undertale and Deltarune
 
-⚓︎ | Don't ask me about my discord because I'll never know what to say to you. If you want to be moots follow me on Tik Tok I repost a lot of cool stuffs #trust. My username is @eevee.fox (๑ᵔ⤙ᵔ๑)
+✦ | Don't ask me about my discord because I'll never know what to say to you. If you want to be moots follow me on Tik Tok I repost a lot of cool stuffs #trust. My username is @eevee.fox (๑ᵔ⤙ᵔ๑)
 
-⚓︎ | Please don't be weird or mean to me, it's already hard enough for me to communicate- at my big old age, yes.
+✦ | Please don't be weird or mean to me, it's already hard enough for me to communicate- at my big old age, yes.
 
 ⋆ ꩜ ⋆｡°✩  𓇼 𓆛 𓇼 ⋆｡°✩ ꩜ ⋆ 
