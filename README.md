@@ -6,7 +6,7 @@ $\color{#5751c1}\textsf{・・・・・・・・・・・・・・・・・・�
 
 ⠀
 
-$\color{#b4a8dd}\textsf{𓏵‧₊˚ ┊ ⤷ ゛}$***BASICS***  $\color{#b4a8dd}\textsf{⋆｡˚}$ 
+$\color{#9aade4}\textsf{𓏵‧₊˚ ┊ ⤷ ゛}$***BASICS***  $\color{#9aade4}\textsf{⋆｡˚}$ 
 
 $\color{#5751c1}\textsf{☾ |}$ You may call me Eevee or the name of the character I'm using idc. I'm a transgender man and use he/him pronouns.
 
@@ -22,17 +22,19 @@ $\color{#9aade4}\textsf{☾ |}$  $\color{#ff0000}\large{\textsf{DNI}}$: racists,
 
 $\color{#5751c1}\textsf{・・・・・・・・・・・・・・・・・・・・・・・・・}$ 
 
-$\color{#b4a8dd}\textsf{𓏵‧₊˚ ┊ ⤷ ゛}$***INTERESTS***  $\color{#b4a8dd}\textsf{⋆｡˚}$ 
+$\color{#9aade4}\textsf{𓏵‧₊˚ ┊ ⤷ ゛}$***INTERESTS***  $\color{#9aade4}\textsf{⋆｡˚}$ 
 
 $\color{#9aade4}\textsf{𝄢 |}$ I'm a biiig Romano kinnie and I'm too old to care about doubles lol  ˚.🍅 ᵎᵎ
 
 $\color{#5751c1}\textsf{𝄢 |}$ **current interests**: Undertale, Deltarune, Hetalia, Omori, Hollow Knight, DDLC, Splatoon, Chiikawa, typology...
 
-$\color{#9aade4}\textsf{𝄢 |}$ **My typology**: sp/sx 4w5 469 ISFP EFVL [R]\L\uAi |  $\color{#b2b9cb}\textsf{full if anybody cares:}$  https://docs.google.com/document/d/1t0_Ba2p5lyqbAa65RVzKyDdjW-bB5X5eD5JrVPWUYEI/edit?usp=sharing
+$\color{#9aade4}\textsf{𝄢 |}$ **My typology**: sp/sx 4w5 469 ESI ISFP EFVL³⁴⁴² [R]/L/uAi
+
+$\color{#5751c1}\textsf{𝄢 |}$ If you want to know more about me check my carrd, it's basically a strawpage but I find it easier: https://eeveefox.carrd.co/
 
 $\color{#5751c1}\textsf{・・・・・・・・・・・・・・・・・・・・・・・・・}$ 
 
-$\color{#b4a8dd}\textsf{𓏵‧₊˚ ┊ ⤷ ゛}$***BOUNDARIES***  $\color{#b4a8dd}\textsf{⋆｡˚}$ 
+$\color{#9aade4}\textsf{𓏵‧₊˚ ┊ ⤷ ゛}$***BOUNDARIES***  $\color{#9aade4}\textsf{⋆｡˚}$ 
 
 $\color{#5751c1}\textsf{✦ |}$ Only interact if you are in any of my fandoms... Especially if you like Undertale and Deltarune
 
