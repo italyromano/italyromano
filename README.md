@@ -1,10 +1,12 @@
-Hello, idk how to make a good repository so I'll just put whatever. This is just for pony town. 𓏲(=`‸´=)
+> Hello, idk how to make a good repository so I'll just put whatever. This is just for pony town.
 
 ・・・・・・・・・・・・・・・・・・・・・・・・・
 
 <img width="498" height="281" alt="romano-romano-hetalia" src="https://github.com/user-attachments/assets/a33c2e12-ea13-481c-85cd-218f2a389eb4" />
 
-⠀
+$\textcolor{red}{\textsf{lorem ipsum}}$
+
+<code style="color : blue">text</code>
 
 𓏵‧₊˚ ┊ ⤷ ゛***BASICS*** ⋆｡˚
 
@@ -43,3 +45,5 @@ Hello, idk how to make a good repository so I'll just put whatever. This is just
 ・・・・・・・・・・・・・・・・・・・・・・・・・
 
 <img width="498" height="281" alt="romano-hetalia" src="https://github.com/user-attachments/assets/9f6975a1-f587-4b21-98a2-aac3d711efbd" />
+
+---
